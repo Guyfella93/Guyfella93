@@ -8,4 +8,14 @@ I like nicknames! Feel free to call me what character I am in games, or anything
 
 ^^ Bro/Twin/etc are fine, just not Literally referring to me as ur brother or ur cousin or sm
 
+STRAWPAGE: https://guyfella.straw.page/
 
+PRNS/ATA: in the works!
+
+DISCLAIMERS:
+
+They're in my Strawpage, but I'd like to reiterate anyhow. I have a solid handful of mental disorders that sometimes make it hard for me to communicate properly.
+
+I can be rude or brash at times, and tend to be overconfident on first greetings. Still, I try to be as friendly as possible! Please just let me know if you have any issues with my behaviors or if you'd prefer if I didn't int with you, I will not be upset with you if you do. 
+
+I frequently have to deal with sharp mood swings and episodes, and am looking into getting diagnosed with a dissociative disorder so I can attempt to manage my symptoms better. When I feel an episode coming on or my mood drops, I tend to suddenly go quiet or accidentally ghost people - I am also VERY forgetful at times. Please don't take personal offense if I suddenly stop talking to you, or it seems like I'm upset or being cold. I'm usually not really upset with you!!! I'm just trying to manage my symptoms! > <" If it really bothers you, let me know and I'll say sorry. 
