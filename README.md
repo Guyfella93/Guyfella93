@@ -12,6 +12,8 @@ STRAWPAGE: https://guyfella.straw.page/
 
 PRNS.PG: https://en.pronouns.page/@Guyfella93
 
+ATABOOK: https://guyfella93.atabook.org/?page=1
+
 DISCLAIMERS:
 
 They're in my Strawpage, but I'd like to reiterate anyhow. I have a solid handful of mental disorders that sometimes make it hard for me to communicate properly.
