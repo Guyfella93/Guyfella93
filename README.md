@@ -10,7 +10,7 @@ I like nicknames! Feel free to call me what character I am in games, or anything
 
 STRAWPAGE: https://guyfella.straw.page/
 
-PRNS/ATA: in the works!
+PRNS.PG: https://en.pronouns.page/@Guyfella93
 
 DISCLAIMERS:
 
